@@ -114,3 +114,24 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Mulled wine
+
+Ingredients:
+- 1 bottle (750ml) red wine (choose a medium to full-bodied variety)
+- 1 orange, sliced
+- 8-10 whole cloves
+- 2 cinnamon sticks
+- 1/3 cup honey or sugar (adjust to taste)
+- 1/4 cup brandy (optional)
+- 1 teaspoon whole allspice
+- 1 teaspoon grated nutmeg
+- Orange peel twists (for garnish, optional)
+
+Instructions:
+1. In a large saucepan, pour the red wine over medium heat.
+2. Add the orange slices, cloves, cinnamon sticks, honey, allspice, and nutmeg.
+3. Stir the mixture gently to combine the ingredients.
+4. Taste the mulled wine and adjust the sweetness by adding more honey.
+5. Once warmed and infused with spices, reduce the heat to low.
+6. Pour the mulled wine into mugs or heatproof glasses and serve.
